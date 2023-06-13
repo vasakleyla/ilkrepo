@@ -1,0 +1,2 @@
+# ilkrepo
+başlıyoruz!
